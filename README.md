@@ -4,7 +4,7 @@
 
 <p align="center">
   <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_1052.gif">
-<i>moon</i> <b>〳</b> <i>star</i> <b>!</b> <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_6836.gif">
+<i>moon</i> <b>〳</b> <i>moony</i> <b>!</b> <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_6836.gif">
 </p>
 <p align="center">
   <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/dividers/space/IMG_1198.gif" alt="pix">
