@@ -12,7 +12,7 @@
 
 
 <p align="center">
-<img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/tech/IMG_1893.png"> ♡ infj - <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_1215.gif"> - she/kit/koi ♡ <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_6835.gif">
+<img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/tech/IMG_1893.png"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://file.garden/ZRa40spOlUzNliEM/graphics/pixels/space/IMG_6835.gif">
 </p>
 <p align="center">
   ∘•········ʚ ♡ ɞ ········•∘
