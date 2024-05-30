@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery06/294f9f36.gif?v=2a41aca3"> ♡ infj - <b>9w1</b> - she/kit/koi - married ♡ <img src="https://pixels.crd.co/assets/images/gallery18/7dc466f8.gif?v=379361a4">
+<img src="https://watermelon.crd.co/assets/images/gallery06/294f9f36.gif?v=2a41aca3"> ♡ infj - <b>9w1</b> - she/kit/koi - single ♡ <img src="https://pixels.crd.co/assets/images/gallery18/7dc466f8.gif?v=379361a4">
 </p>
 
 <p align="center">
