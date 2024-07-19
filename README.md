@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery06/294f9f36.gif?v=2a41aca3"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://pixels.crd.co/assets/images/gallery18/7dc466f8.gif?v=379361a4">
+<img src="https://i.ibb.co/vJYBmjD/E6-D838-A9-D2-D4-4814-B778-3-E0170-AE3911.gif"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://i.ibb.co/Ks2rzJh/8-AC53457-3-A6-F-403-B-9282-63-B3-ADF0-DDCD.gif">
 </p>
 
 <p align="center">
@@ -27,5 +27,5 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1169639038773366836/1206731638931980328/7c49c055.png?ex=65ef886a&is=65dd136a&hm=b70d9c4e1d35511ca696ae0e96e19dcd59573e744246485f73144280e4dcf627&">
+  <img src="https://files.catbox.moe/stvayk.gif">
 </p>
