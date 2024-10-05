@@ -20,7 +20,7 @@
 </p>
 
 <p align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery15/5ae264a7.gif?v=2a41aca3"> m/w @JuLieTfoC ! <img src="https://watermelon.crd.co/assets/images/gallery15/2778df98.gif?v=2a41aca3">
+<img src="https://watermelon.crd.co/assets/images/gallery15/5ae264a7.gif?v=2a41aca3"> m/w <a link href="https://github.com/JuLieTfoC">@JuLieTfoC</a> ! <img src="https://watermelon.crd.co/assets/images/gallery15/2778df98.gif?v=2a41aca3">
 </p>
 <p align="center">
   ∘•········ʚ ♡ ɞ ········•∘
