@@ -18,6 +18,7 @@
 <p align="center">
 <img src="https://i.ibb.co/vJYBmjD/E6-D838-A9-D2-D4-4814-B778-3-E0170-AE3911.gif"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://files.catbox.moe/w3kjjf.gif">
 </p>
+<p align="center">
   ∘•········ʚ ♡ ɞ ········•∘
 </p>
 
