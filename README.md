@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/3a5ad8617446e697727b242161a03e3e/838b1b64c08ea7c4-4f/s1280x1920/08fbc17fa85156197c93e791e21656642b67e26c.pnj" height=120px;>
+  <img src="https://64.media.tumblr.com/82a5d0da8625523aafaf5295b21470e6/40a4debadd2d7a01-83/s2048x3072/cf2472c97b468a7fcca7264ef85fae5b67e737b0.pnj" height=50px;>
 </p>
 
 <p align="center">
@@ -7,24 +7,24 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/4thpp2.gif">
-<i>moon</i> <b>〳</b> <i>moony</i> <b>!</b> <img src="https://i.imgur.com/ZZhuLtx.gif">
+  <img src="https://64.media.tumblr.com/01d285faf464e1f42da5edf9b09cb6a0/c6c15658149bd2ab-87/s75x75_c1/aa03f8398ad07b7ebe76412b1bcec7c0a90dd9dd.gifv">
+<i>moon</i> <b>〳</b> <i>moony</i> <b>!</b> <img src="https://64.media.tumblr.com/9948d985859df68000236e6b69923bf6/ec2fe971b0fa2a3b-9f/s75x75_c1/3d15e1738ba7d03da15f97899a012c7dc732bd44.gifv">
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/e5ef4177b4742ba4a1bda8245a86c4e0/70207c117a4ae28c-fe/s250x400/c428ad8d88d9ce4771ed6d25c91d5b35d33968ef.gif" alt="pix">
+  <img src="https://64.media.tumblr.com/37cc01de340903d24636f44e50d35b52/a972c987856e89b3-e5/s400x600/57433d99de713c9b18bb910b188bb7449fa51334.pnj" alt="pix">
 </p>
 
 
 <p align="center">
-<img src="https://i.ibb.co/vJYBmjD/E6-D838-A9-D2-D4-4814-B778-3-E0170-AE3911.gif"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://files.catbox.moe/w3kjjf.gif">
+<img src="https://64.media.tumblr.com/76a9587da7e8ea49a265cf690bda8738/ec2fe971b0fa2a3b-38/s75x75_c1/7d40549ec7b65a9c6ee1007f2e78d54db0a6fc69.gifv"> ♡ infj - <b>9w1</b> - she/kit/koi ♡ <img src="https://64.media.tumblr.com/9f3cc9bcb62722745785592ed8b92d44/4d492774a6096d55-9d/s75x75_c1/f3408d57a7592761f9bcd2a746bf194a235653e9.gifv">
 </p>
 <p align="center">
   ∘•········ʚ ♡ ɞ ········•∘
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a1526dce9f6b1c233975555e4681ca4c/ca87e2ceb2047715-63/s75x75_c1/d57621f49c8752c6ba16896a91a6c61c58bfa124.gifv">
+  <img src="https://64.media.tumblr.com/33a7d709ad8786f1b5a4b0abab5548cc/33018824c8d74010-e1/s1280x1920/a8ff7fcd601b7cf3b13f6bbe0a5fbdfeb4fb617b.gifv" height=150px;>
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/70540691f823252bfd880d35e436fe13/838b1b64c08ea7c4-58/s1280x1920/ee4f769440797e25625d0b75a9b5a7e2e63f6149.pnj" height=120px;>
+  <img src="https://64.media.tumblr.com/82a5d0da8625523aafaf5295b21470e6/40a4debadd2d7a01-83/s2048x3072/cf2472c97b468a7fcca7264ef85fae5b67e737b0.pnj" height=50px;>
 </p>
