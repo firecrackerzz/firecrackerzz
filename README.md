@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/76a9587da7e8ea49a265cf690bda8738/ec2fe971b0fa2a3b-38/s75x75_c1/7d40549ec7b65a9c6ee1007f2e78d54db0a6fc69.gifv"> ♡ infj - <b>9w1</b> ♡ <img src="https://64.media.tumblr.com/9f3cc9bcb62722745785592ed8b92d44/4d492774a6096d55-9d/s75x75_c1/f3408d57a7592761f9bcd2a746bf194a235653e9.gifv">
+<img src="https://64.media.tumblr.com/76a9587da7e8ea49a265cf690bda8738/ec2fe971b0fa2a3b-38/s75x75_c1/7d40549ec7b65a9c6ee1007f2e78d54db0a6fc69.gifv"> ♡ infj - <b>9w1</b> - she ♡ <img src="https://64.media.tumblr.com/9f3cc9bcb62722745785592ed8b92d44/4d492774a6096d55-9d/s75x75_c1/f3408d57a7592761f9bcd2a746bf194a235653e9.gifv">
 </p>
 <p align="center">
   ∘•········ʚ ♡ ɞ ········•∘
