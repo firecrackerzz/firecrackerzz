@@ -1,21 +1,18 @@
 <div id="user-content-toc" align="center">
-  <ul>
-  <summary><h1> $${\color{red}Radiant}$$ $${\color{red}is}$$ $${\color{red}Gabriel,}$$ $${\color{red}for}$$ $${\color{red}he}$$ $${\color{red}is}$$ $${\color{red}the}$$ $${\color{red}light}$$ $${\color{red}in}$$ $${\color{red}my}$$ $${\color{red}darkness.}$$</h1></summary>
-  </ul>
 </div>
 <p align="center">
-  <img src="https://64.media.tumblr.com/005570ea7f8649ea1d5a75450fd51cc5/95bb936825206caa-18/s400x600/776c1725b76d06381bc45263611649f17dd55fc5.pnj" height="370px">
+  <img src="https://64.media.tumblr.com/efccb0fafcb7eb52cb761d68badc287a/fa93456f6f1ade5b-80/s540x810/1427c7864e01ff8663ea221d5a917c0caf585c9f.gifv" height="200px">
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/f3c3597c6f6a30aef298a7f9193a82ab/5391654d66e48e8c-b1/s75x75_c1/cf10b0c8f11a589bed83097a820d0f18c89ab2c9.gifv">
-<i>moon</i> <img src="https://64.media.tumblr.com/7b8722ecc91e12ac716a9d16aba9ed27/5391654d66e48e8c-8a/s75x75_c1/a0615884b5857d6675c8d4db4c6b0ddc55544e70.gifv">
+  <img src="https://64.media.tumblr.com/d5c0fe818dc0603f2d9f314a23ab5b6b/6b9b1b3d363b520b-d8/s75x75_c1/68662db5bc1ef90e6c73f539eef3e4c28ea68752.webp">
+<i>moon</i> <img src="https://64.media.tumblr.com/dd1ff2abc9d949c16e479b6d3bfdcd33/6b9b1b3d363b520b-52/s75x75_c1/80f0253556e60d14e8007a6b265d65dd1cb273b8.webp">
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/d1cea8fefafed96bbfd8047cddaa77b5/f1de67d49f20e671-62/s640x960/3b5b3deed0556fdf1ad2166f8fe671254f611fb7.pnj" height="50px"> ♡ infj - <b>9w1</b> - she ♡ <img src="https://64.media.tumblr.com/5d0eb98b3877fd6f28a799eb7a76c18b/5d187d0c12641d46-37/s500x750/412e3d66c9c0341dd695655e71dbc647984ce6f3.pnj" height="50px">
+<img src="https://64.media.tumblr.com/7dfab9f5351ed3cc4d282dfb1e500b39/a61a02234809a08a-ca/s75x75_c1/4bb690d916cd8c2bf149e75cddf410c87226cb38.gifv"> ♡ infj - <b>9w1</b> - she ♡ <img src="https://64.media.tumblr.com/98fbbef98472f6cb333df260bc8a805c/35c4f75e55691495-8e/s75x75_c1/4647ff7c1b6841338a284c826b22b7c82ecabe05.gifv">
 </p>
 <p align="center">
 <p align="center">
-  <img src="https://64.media.tumblr.com/5dbfcb57e003af29916ce2bd1b99fda5/eefd7b01576e60bd-34/s1280x1920/8b26e8a85f8448c64ef01977a587de43053eabb4.pnj" height="90px">
+  <img src="https://64.media.tumblr.com/6a9a1c544aad1adcd7a7b31e75fe7623/0eeae0459fed2191-a7/s500x750/67b9901a682773dd9db5842f8e6d2be965a3c24f.pnj" height="250px">
 </p>
 
